@@ -1,2 +1,2 @@
-# MiniProject-Python
-Random thing that I do during free time
+Well, just some random thing that I do during free time xD
+
